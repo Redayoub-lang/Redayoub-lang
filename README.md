@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Redayoub-lang
-- 👀 I’m interested in  sites wib.
+- 👀 I’m Software engineering.
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on the programing projects
 - 📫 How to reach me 
